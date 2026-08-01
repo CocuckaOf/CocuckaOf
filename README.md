@@ -1,3 +1,1 @@
-- 👋 Hi, I’m Cocucka
-- 👀 I’m usually play Garry's mod, CS:GO and other
-- 🌱 I am write code on Lua and a little on python and js
+zov zov z v o Z  Z Z Z Z Z
